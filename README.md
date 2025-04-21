@@ -1,2 +1,0 @@
-# hai namaku midnight01 
-
